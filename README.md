@@ -1,3 +1,3 @@
 # bu-data-jo-spring-2020
 # Where Aryan is very creative
-## or is he? 🍆
+## or is he? 
